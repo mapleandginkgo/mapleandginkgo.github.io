@@ -2,7 +2,7 @@
 
 I'm Sunny. I run a little ✨ jewelry ✨ business called 🛍️ [MapleAndGinkgo](https://mapleandginkgo.etsy.com) 🛍️
 
-Sometimes I put out jewelry in my neighborhood or around my city "for free" or "for donations". These are usually items that don't sell well, or have slight imperfections, or are on clearance. If you'd like, you can Venmo me [@MapleAndGinkgo](https://account.venmo.com/u/MapleAndGinkgo), and I usually choose one or two causes to donate to.
+Sometimes I put out jewelry in my neighborhood or around my city "for free" or "for donations". These are usually items that don't sell well, or have slight imperfections, or are on clearance. If you'd like, you can 💸 Venmo 💸 me [@MapleAndGinkgo](https://account.venmo.com/u/MapleAndGinkgo), and I usually choose one or two causes to donate to.
 
 It's a small way to brighten the neighborhood, while also doing some good 💚
 
@@ -18,6 +18,9 @@ You can check out my shop at [mapleandginkgo.etsy.com](https://mapleandginkgo.et
 
 ### Social media
 Technically, I do have an IG account for my small business, but I'm only active there, like, once a year. You can follow along, though, if you'd like, [@maple.ginkgo](https://www.instagram.com/maple.ginkgo/) 🙂
+
+### Venmo
+I'm [@MapleAndGinkgo](https://account.venmo.com/u/MapleAndGinkgo) on Venmo. (Please choose the option to "send money without confirming the phone number", since I'd rather not put my phone number out on the internet. Also, please don't mark the Venmo transaction as a purchase, since Venmo would take a cut of that, and also my tax situation would get complicated.) 🙂
 
 💚
 
