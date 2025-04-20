@@ -8,7 +8,9 @@ Sometimes I put out jewelry in my neighborhood or around my city "for free" or "
 
 In 2023, I donated to [The Trevor Project](https://www.thetrevorproject.org/).
 
-In 2024, I'll be raising money for the [Palestine Children's Relief Fund](https://www.pcrf.net/).
+In 2024, I donated to the [Palestine Children's Relief Fund](https://www.pcrf.net/).
+
+In 2025, I'll be fundraising for the [ACLU](https://www.aclu.org/) and the [Greater Boston Food Bank](https://www.gbfb.org/).
 
 ### Shop
 You can check out my shop at [mapleandginkgo.etsy.com](https://mapleandginkgo.etsy.com). (If you plan to purchase anything, it helps me save 4% in fees if you use this link directly.)
